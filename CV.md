@@ -21,7 +21,7 @@ Malheureusement pour l'instant dans le domaine de l'IT pas d'experience. Sinon q
 
 **Employé libre-service**  
 *CARREFOUR EXPRESS Ayguesvives*  
-* 2019 – 2021*  
+*2019 – 2021*  
 - Réception des marchandises,Gestion des stocks et commandes gestion des caisses
 - Gestion des caisses, préparation du pain.
 - Coordination d'une equipe de 2 à 3 personnes, répartitions des taches...
