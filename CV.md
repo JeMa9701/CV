@@ -1,7 +1,7 @@
 
 # MACHADO Jeremy
 ## Futur Technicien supérieur système et réseaux
-• [github.com/](https://github.com/JeMa9701)  
+• [github.com](https://github.com/JeMa9701)  
 • Jeremy-machado@outlook.fr
 
 ---
